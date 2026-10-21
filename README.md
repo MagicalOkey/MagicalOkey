@@ -66,6 +66,21 @@ Live plate painting for weddings, anniversaries and private celebrations — pai
 
 Alongside his oil practice, Henry Yuan runs an AIGC art line, **Plush Planet (毛绒星球)**, built around *mogu* — a small hippo in glasses and a red sweater. The line includes AIGC digital artworks and framed digital prints, and an interactive mogu companion experience is in development.
 
+<p>
+  <img src="https://cdn.shopify.com/s/files/1/0584/7957/5121/files/plush_planet_times_square.jpg?v=1792589053" width="49%" alt="Plush Planet on the TSX Broadway screen, Times Square, New York">
+  <img src="https://cdn.shopify.com/s/files/1/0584/7957/5121/files/plush_planet_twin_towers_1.jpg?v=1792589053" width="49%" alt="Plush Planet characters on the Chengdu Twin Towers">
+</p>
+<p>
+  <img src="https://cdn.shopify.com/s/files/1/0584/7957/5121/files/plush_planet_twin_towers_2.jpg?v=1792589053" width="49%" alt="Plush Planet characters on the Chengdu Twin Towers">
+  <img src="https://cdn.shopify.com/s/files/1/0584/7957/5121/files/plush_planet_lakeside_led.jpg?v=1792589053" width="49%" alt="Plush Planet — LOVE PANDA, Love Every Wildlife big-screen display">
+</p>
+<p>
+  <img src="https://cdn.shopify.com/s/files/1/0584/7957/5121/files/plush_planet_chongqing.jpg?v=1792589053" width="49%" alt="Plush Planet on a big screen in Chongqing">
+  <img src="https://cdn.shopify.com/s/files/1/0584/7957/5121/files/plush_planet_twin_towers_3.jpg?v=1792589053" width="49%" alt="Plush Planet characters on the Chengdu Twin Towers">
+</p>
+
+*Plush Planet characters on landmark big screens — TSX Broadway in Times Square (New York), the Chengdu Twin Towers, a Chongqing city screen, and the LOVE PANDA lakeside screen.*
+
 ## Links
 
 - 🌐 Website & shop — [magicalokeygallery.com](https://magicalokeygallery.com)
