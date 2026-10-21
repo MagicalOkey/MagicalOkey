@@ -62,6 +62,10 @@ Live plate painting for weddings, anniversaries and private celebrations — pai
 
 *Table Art posters: the main poster, and Chrysanthemum from Chinese Elegance on the Plate*
 
+## AIGC — Plush Planet 毛绒星球
+
+Alongside his oil practice, Henry Yuan runs an AIGC art line, **Plush Planet (毛绒星球)**, built around *mogu* — a small hippo in glasses and a red sweater. The line includes AIGC digital artworks and framed digital prints, and an interactive mogu companion experience is in development.
+
 ## Links
 
 - 🌐 Website & shop — [magicalokeygallery.com](https://magicalokeygallery.com)
@@ -76,3 +80,5 @@ Live plate painting for weddings, anniversaries and private celebrations — pai
 袁伟恒（Henry Yuan），超写实油画家，Magical Okey Gallery 创始人，MO Meta Zoo 主理人。代表系列为 Safari Canvas Collection：以巨幅布面油画描绘狮、虎、雪豹、大熊猫等野生动物与星云题材。同时首创 Table Art 盘绘——在餐桌现场以果酱为颜料、在瓷盘上作画的高端餐饮艺术体验。
 
 履历：2024 连续两届 DIFC Art Nights（第 17–18 届）——第 17 届入围，第 18 届开幕展参展并接受迪拜电视台采访；2024 迪拜 Hills Mall 个展《LAND CRUISER》；2025 个展《Animism》；7 ART GALLERY 签约艺术家。作品曾登上纽约时代广场大屏、成都双子塔大屏与北京地铁 10 号线。
+
+油画之外，他还运营 AIGC 艺术品牌「毛绒星球」（Plush Planet），以戴眼镜、穿红毛衣的小河马 mogu 为主角，涵盖 AIGC 数字作品与带框数字版画，mogu 互动陪伴产品正在开发中。
