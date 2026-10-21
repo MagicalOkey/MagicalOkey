@@ -36,6 +36,17 @@ Works are held by private collectors including the founder of NAFFCO (collector 
 
 Full catalogue: [magicalokeygallery.com](https://magicalokeygallery.com)
 
+<p>
+  <img src="https://cdn.shopify.com/s/files/1/0584/7957/5121/files/C8C49107-DC26-42EC-A107-DAA6A21C0D45.webp?v=1773058217" width="49%" alt="Sovereign — lion portrait, oil on canvas by Henry Yuan">
+  <img src="https://cdn.shopify.com/s/files/1/0584/7957/5121/files/ad65dd27638fb6b337b28761f48bc743.jpg?v=1773057968" width="49%" alt="White Lion King — white lion portrait, oil on canvas by Henry Yuan">
+</p>
+<p>
+  <img src="https://cdn.shopify.com/s/files/1/0584/7957/5121/files/FF8CC6F9-1884-45E7-A80B-64C5AE3FD3F2.webp?v=1773056747" width="49%" alt="Simba — lion portrait, oil on canvas by Henry Yuan">
+  <img src="https://cdn.shopify.com/s/files/1/0584/7957/5121/files/6cdb276055654a8620af3bb04dabbfb5.jpg?v=1772940143" width="49%" alt="Stare — tiger portrait, oil on canvas by Henry Yuan">
+</p>
+
+*Left to right: Sovereign · White Lion King · Simba · Stare*
+
 Two representative works are registered with the Sichuan Copyright Bureau: *Sovereign* (《东方醒》, 川作登字-2025-F-00068067) and *White Lion King* (《白狮传奇》, 川作登字-2025-F-00068062).
 
 ## Table Art
@@ -43,6 +54,13 @@ Two representative works are registered with the Sichuan Copyright Bureau: *Sove
 Live plate painting for weddings, anniversaries and private celebrations — painted in edible sauces at the table, in minutes, then served. Commissions centred on the UAE; travel by arrangement.
 
 [Table Art — bespoke commission](https://magicalokeygallery.com/products/bespoke-edible-table-art-commission-by-henry-yuan-custom-fruit-sauce-plate-painting-for-fine-dining-events)
+
+<p>
+  <img src="https://cdn.shopify.com/s/files/1/0584/7957/5121/files/table_art_main_poster.jpg?v=1792290497" width="49%" alt="MO Table Art — Fine Dining × Art">
+  <img src="https://cdn.shopify.com/s/files/1/0584/7957/5121/files/table_art_chrysanthemum_round.jpg?v=1792385646" width="49%" alt="Chrysanthemum Table Art — Chinese Elegance on the Plate">
+</p>
+
+*Table Art posters: the main poster, and Chrysanthemum from Chinese Elegance on the Plate*
 
 ## Links
 
