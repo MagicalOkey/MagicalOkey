@@ -13,8 +13,7 @@ He is also the creator of **Table Art** — live edible plate painting performed
 ## Exhibitions & Recognition
 
 - **2025** — Solo exhibition *Animism*
-- **2024** — 18th DIFC Art Nights, Dubai — opening exhibition; interviewed by Dubai TV
-- **2024** — 17th DIFC Art Nights, Dubai — shortlisted
+- **2024** — DIFC Art Nights, Dubai — two consecutive editions (17th–18th): shortlisted for the 17th edition; opening exhibition of the 18th edition, interviewed by Dubai TV
 - **2024** — Solo exhibition *LAND CRUISER*, Dubai Hills Mall
 - Signed artist of **7 ART GALLERY**
 - Featured on the Times Square billboard (New York), the Chengdu Twin Towers screen, and Beijing Metro Line 10
@@ -58,4 +57,4 @@ Live plate painting for weddings, anniversaries and private celebrations — pai
 
 袁伟恒（Henry Yuan），超写实油画家，Magical Okey Gallery 创始人，MO Meta Zoo 主理人。代表系列为 Safari Canvas Collection：以巨幅布面油画描绘狮、虎、雪豹、大熊猫等野生动物与星云题材。同时首创 Table Art 盘绘——在餐桌现场以果酱为颜料、在瓷盘上作画的高端餐饮艺术体验。
 
-履历：2024 第 17 届 DIFC Art Nights 入围；2024 第 18 届 DIFC Art Nights 开幕展参展并接受迪拜电视台采访；2024 迪拜 Hills Mall 个展《LAND CRUISER》；2025 个展《Animism》；7 ART GALLERY 签约艺术家。作品曾登上纽约时代广场大屏、成都双子塔大屏与北京地铁 10 号线。
+履历：2024 连续两届 DIFC Art Nights（第 17–18 届）——第 17 届入围，第 18 届开幕展参展并接受迪拜电视台采访；2024 迪拜 Hills Mall 个展《LAND CRUISER》；2025 个展《Animism》；7 ART GALLERY 签约艺术家。作品曾登上纽约时代广场大屏、成都双子塔大屏与北京地铁 10 号线。
